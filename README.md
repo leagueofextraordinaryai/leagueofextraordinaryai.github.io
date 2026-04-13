@@ -1,1 +1,1 @@
-# leagueofextraordinaryai.github.io
+# League of Extraordinary AI
